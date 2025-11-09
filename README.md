@@ -1,17 +1,9 @@
-<p align="center">
-<img width="900" height="900" src="https://github.com/shadowsugarmaxxing/shadowsugarmaxxing/blob/5c2e14bcdc127cf58fc9d7fe15a305a70049e5a5/a7ee9r.png"> 
-</p>
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Love+Ya+Like+A+Sister&size=28&pause=1000&color=AA79C0&center=true&vCenter=true&width=435&lines=helloooo!)](https://git.io/typing-svg)
 
-<p align="center">
-&nbsp;
-hiiii gafgdhsjazshdgdshxjc
-<br>
-ok ts a wip 
-&nbsp;
-</p>
+ 𓈒   ꯭hiii im mimi/ari! you can call me anything as long as i'm comfy w it!↷ c+h is encouranged, feel free to int unless my name says otherwise..!! 
 
+ ͡ ⌒⠀༼♬⠀⏝⏝if i have done anything, please lmk! ,, i'd really like to apologize, if i say stuff such as "ur stinky" pls it's literally a joke so don't 
+take it so seriously! be mindful when talking 2 me also, i sometimes might get sad easily. 
 
-<p align="center">
-<img width="250" height="250" src="https://github.com/shadowsugarmaxxing/shadowsugarmaxxing/blob/cc8ffe88f4036f2b6f9f1a84232b08c73c6d7cdc/ubei55.png"> 
-<p align="center">
-  
+ꪆ꒱⠀₊⠀⠀ ͜𓏼that's all !! ASK FOR DISCORD !     𓎢𓎟⠀⠀ ͡ ♡
+![burp2](https://files.catbox.moe/w7x4ge.png)
