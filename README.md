@@ -1,5 +1,6 @@
-![GitHub profile views](github-profile-views-counter.authoreact.com)
-
+<p align="center">
+  <img src="https://komarev.com/ghpvc/?username=shadowsugarmaxxing&label=views&color=red" alt="views">
+</p>
 
 
 <p align="center">
