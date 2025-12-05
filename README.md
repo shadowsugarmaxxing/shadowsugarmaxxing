@@ -1,9 +1,13 @@
+![GitHub profile views](github-profile-views-counter.authoreact.com)
+
+
+
 <p align="center">
   <img src="https://github.com/shadowsugarmaxxing/shadowsugarmaxxing/blob/954994bce526337d53f37c3e3e369782d6dfa4c6/z8dbu4.png" width="61%" alt="Alt text description">
 </p>
 
 <p align="center">
-<img src="https://github.com/shadowsugarmaxxing/shadowsugarmaxxing/blob/954994bce526337d53f37c3e3e369782d6dfa4c6/0imdqv.png" width="50%" alt="Alt text description">
+<img src="https://github.com/shadowsugarmaxxing/shadowsugarmaxxing/blob/954994bce526337d53f37c3e3e369782d6dfa4c6/0imdqv.png" width="49%" alt="Alt text description">
 </p>
 
 
