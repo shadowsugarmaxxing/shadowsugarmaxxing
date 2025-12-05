@@ -11,7 +11,7 @@
 <p align="center">
   <a href="https://rentry.co/xmaswrapping">rntry (wip)</a>
   <img src="https://github.com/user-attachments/assets/dc103cce-6aea-4ba1-83c5-d9f0361f6896" width="20">
-<a href="https://princsscntipede">ata</a>
+<a href="https://princsscntipede.atabook.org">ata</a>
 
 
 <p align="center">
